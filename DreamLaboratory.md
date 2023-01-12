@@ -1,2 +1,0 @@
-# DreamLaboratory
-DreamLaboratory Maqsad rejalari
